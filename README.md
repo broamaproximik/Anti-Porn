@@ -218,4 +218,4 @@ Anti-Porn is the full free version with all features and updates included. There
 Take the first step towards a safer internet experience for your children — **download Anti-Porn free today!**
 
 ---
-**Last updated:** 2026-10-08 02:25:50 UTC
+**Last updated:** 2026-10-08 09:53:00 UTC
